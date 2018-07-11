@@ -26,9 +26,13 @@
 
 -----
 
-> 待补
-
 - [【中字】BanG Dream! Second☆lLIVE Starrin’PARTY 2016](https://www.bilibili.com/video/av10464533/ "动画ost收录 BanG Dream 2nd Live")
+
+开场是动画配音wwww
+
+介绍了很多新东西
+
+大家也都逐渐成长的 Live
 
 -----
 
