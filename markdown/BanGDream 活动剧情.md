@@ -21,4 +21,13 @@ Hello Happy World! 全员
 
 花音公主、怪盗薰、侦探kkr hgm msk（大家一起在豪华客船上玩耍）
 
-### 第四期：[りみのプレゼントソング](https://www.bilibili.com/video/av25748936/)
+### 第四期：[りみのプレゼントソング](https://www.bilibili.com/video/av25748936/ "给 Rimi 姐姐庆生")
+
+PPP 全员
+
+Rimi 为姐姐写新曲
+
+### 第五期：[星を探しに](https://www.bilibili.com/video/av25752376/ "观星")
+
+ksm、兰、tgm、日菜、kkr
+
