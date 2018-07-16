@@ -10,9 +10,7 @@
 
 然后沉迷 ing
 
------
-
-- [【中字】BanG Dream! First☆LIVE Sprin'PARTY 2016!](https://www.bilibili.com/video/av9465513/ "Poppin'Party 1st Live")
+# [BanG Dream! First☆LIVE Sprin'PARTY 2016!](https://www.bilibili.com/video/av9465513/ "Poppin'Party 1st Live")
 
 虽然看到很多说*划水沙*`伊藤彩沙`有点气，但是没办法，那时候彩沙是零基础选手，老师要求是右手弹奏
 
@@ -24,9 +22,7 @@
 
 让其他人唱，对观众来说也是福利`说白了就是，其他人版也吼啊！`
 
------
-
-- [【中字】BanG Dream! Second☆lLIVE Starrin’PARTY 2016](https://www.bilibili.com/video/av10464533/ "动画ost收录 BanG Dream 2nd Live")
+# [BanG Dream! Second☆lLIVE Starrin’PARTY 2016](https://www.bilibili.com/video/av10464533/ "动画ost收录 BanG Dream 2nd Live")
 
 开场是动画配音wwww
 
@@ -34,9 +30,7 @@
 
 大家也都逐渐成长的 Live
 
------
-
-- [【中字】武士道10周年Live片段 PPP & Roselia 部分](https://www.bilibili.com/video/av10846606/)
+# [武士道10周年Live片段 PPP & Roselia 部分](https://www.bilibili.com/video/av10846606/)
 
 武士道十周年的，也是十分棒，一上来就是 [ティアドロップス](https://music.163.com/song?id=445450088&userid=322190445/)
 
@@ -46,15 +40,15 @@
 
 啊，r组 的，总有点看不下去，可能是 Live 版太火爆了，然后我难以承受 ○|￣|_ 听歌倒是有听 r 组的歌，但是看 Live 真的是看不下去……
 
------
-
-- [【中字】BanG Dream! 3rd☆LIVE Sparklin’ PARTY 2017!](https://www.bilibili.com/video/av15021641/)
+# [BanG Dream! 3rd☆LIVE Sparklin’ PARTY 2017!](https://www.bilibili.com/video/av15021641/)
 
 这场有不插电环节，贼舒服，是享受的时间 `不插电环节天下第一！`
 
 这场的 ティアドロップス 帅爆了！
 
------
+# [Garupa Live - Poppin' Party出场部分](https://www.bilibili.com/video/av26955736/)
+
+十分燃 wwww
 
 > 待补
 
